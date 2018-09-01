@@ -1,0 +1,1 @@
+> Todavía recuerdo aquel amanacer en que mi padre me llevó por primera vez a visitar el Cementerio de los Libros Olvidados. Desgranaban los primeros días del verano de 1945 y caminábamos por las calles de una Barcelona atrapada bajo cielos de ceniza y un sol de vapor que se derramaba sobre la Rambla de Santa Mónica en una guirnalda de cobre líquido.
